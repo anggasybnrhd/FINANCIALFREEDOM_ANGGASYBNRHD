@@ -1,8 +1,43 @@
 # FINANCIALFREEDOM_ANGGASYBNRHD
 TRUST MY PLAN N BUY MORE BITCOIN 2023 - 2030. FUCK FIAT !!!
+- FORECAST TOOLS https://www.bitcoinmagazinepro.com/charts/bitcoin-price-prediction/
+- PYCLCETOP https://www.bitcoinmagazinepro.com/charts/pi-cycle-top-indicator/
+-
+- 11.471% (HV1)
+- 11.471% : 4 = 2.867% (HV2)
+- 2.867% : 4 = 716% (HV3)
+- 716% : 4 = 179% (HV4)
+- 179% : 4 = 44,75% (HV5)
+
+- 
+# DATA UPDATE 9 MEI 2025
+NOTE:
+- ATL NOVEMBER 2022
+- HALVING KE-4 20 APRIL 2024
+- ATH 120.000 - +138.000 1 NOVEMBER-DESEMBER 2025
+- DROP JANUARI 2026 (BEARMARKET)
+- ATL AGUSTUS 2026 - (ATL PREDIKSI OKTOBER 2026) - JANUARI 2027
+- HALVING KE-5 MARET 2028
+- ATH HALVING KE-5 (PRICE???) 1 NOVEMBER-DESEMBER 2029
+- DROP HALVING KE-5 JANUARI 2O30 (BEARMARKET)
+
+
+<img width="1680" alt="Tangkapan Layar 2025-05-10 pukul 10 55 09" src="https://github.com/user-attachments/assets/97ace61c-4790-4b53-a520-2af5183a29c1" />
 
 
 
-CHART 9 MEI 2025, NOTE: ATH HALVING KE-4 120.000 - +138.000 NOVEMBER-DESEMBER 2025 & DROP JANUARI 2026
-<img width="1680" alt="Tangkapan Layar 2025-05-10 pukul 10 03 26" src="https://github.com/user-attachments/assets/c0bad947-d191-4fab-9aa4-34cc7ef680ef" />
-<img width="1680" alt="Tangkapan Layar 2025-05-10 pukul 10 12 52" src="https://github.com/user-attachments/assets/1dcf40ca-ba6c-4df3-a7f1-e1fb7d4abc85" />
+# 1. MEI - OKTOBER 2025, OPEN LONG BTC TIAP BULAN
+
+# 2. NOVEMBER - DESEMBER 2025 ATH, TP LONG & OPEN SHORT
+
+# 3. JANUARI 2026 DROP, +OPEN SHORT 
+
+# 4. AGUSTUS - (CVDD PREDIKSI OKTOBER 2026) - DESEMBER 2026, BUY SPOT & OPEN LONG
+
+# 5. FEBUARI 2027 - FEBUARI 2028, +LAYER LONG
+
+# 6. APRIL 2028, +LAYER LONG
+
+# 7. MEI 2028 - AGUSTUS 2029, +LAYER LONG SETIAP BULAN
+
+# 8. NOVEMBER - DESEMBER 2029 ATH, TP LONG 
